@@ -1,1 +1,1 @@
-Ola vou dacar tanga
+Ola vou estudar muito
